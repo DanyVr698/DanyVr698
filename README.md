@@ -1,0 +1,5 @@
+- 👋 Hi, I’m DanyVr
+- 👀 I’m interested in: gorilla tag
+- 🌱 I’m currently learning: code
+- 📫 How to reach me: discord
+- 😄 Pronouns: He/Him
